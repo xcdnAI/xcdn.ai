@@ -7,5 +7,4 @@
 
 💬技术运维7*24小时在线支持，售后无忧。♣️
 
-入群：https://t.me/www_xcdn_ai
 联系测试 ：https://t.me/xcdn_Anne08
